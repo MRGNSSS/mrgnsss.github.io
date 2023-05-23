@@ -1,2 +1,1 @@
-# mrgnsss.github.io
- 
+WS00 kansio
